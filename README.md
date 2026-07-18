@@ -38,4 +38,4 @@ in the open.
   not a transcript) — and any omission is itself disclosed. The floor is never
   a place to hide.
 
-*Support the work: [Patreon link — added at launch].*
+*Support the work: [patreon.com/MasBandwidth](https://patreon.com/MasBandwidth).*
